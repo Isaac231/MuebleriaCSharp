@@ -1,3 +1,3 @@
 #Bienvenido a la muebleria papi uwu
 ****
-Quien pa rol?? >///<
+Quien pa rol?? uwu
